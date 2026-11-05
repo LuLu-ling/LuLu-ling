@@ -1,6 +1,6 @@
 ## 你好 👋
 
-16岁，是学生（
+17 岁，是学生（
 
 [![OIP-C](https://github.com/user-attachments/assets/5d1ad698-1e12-43ec-8b08-13b96a8f9798)](https://github.com/Ciilu)
 
